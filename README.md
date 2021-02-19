@@ -1,7 +1,7 @@
 # feelings-playlist-2021
 tl;dr here it is get excited! It's weird as fuck, but it's art! 
 
-This is now a collaborative playlist, so if you're disappointed that something is missing, add it. If there are issues with permissioning, feel free to let me know!
+This is now a collaborative playlist, so if you're disappointed that something is missing, add it. If there are issues with permissioning, feel free to let me know.
 
 <a href="https://open.spotify.com/playlist/1OSt13ueHrDgWZ1xAxNnex?si=i4-_EBPAR7eXVeNNhpRDiQ">https://open.spotify.com/playlist/1OSt13ueHrDgWZ1xAxNnex?si=i4-_EBPAR7eXVeNNhpRDiQ</a>
 
